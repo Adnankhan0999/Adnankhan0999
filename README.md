@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Data Science<br><br>👯 I’m looking to collaborate on ML , NLP AND DATA ANALYSIS Based Projects<br><br>🤝 I’m looking for help with Data Analysis<br><br>💬 Ask me about Machine Learning, Natural Language Processing And Data Analysis<br><br>📫 How to reach me adnankhan67691@gmail.com<br><br>⚡ 
+🌱 I’m currently learning Data Science<br><br>👯 I’m looking to collaborate on ML , NLP AND DATA ANALYSIS Based Projects<br><br>🤝 I’m looking for help with Data Analysis<br><br>💬 Ask me about Machine Learning, Natural Language Processing And Data Analysis<br><br>📫 How to reach me adnankhan67691@gmail.com<br><br>
 
 
 ## 🌐 Socials:
